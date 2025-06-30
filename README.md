@@ -1,2 +1,2 @@
-# Ogum Guerreiro.github.io
+# OgumGuerreiro.github.io
 NFT
